@@ -18,3 +18,5 @@ Homer: [as Everyman]
 > Don't thank me! Thank Captain America for giving me the patriotism 
 > to want to save the President's life. And thank Wonder Woman 
 > for giving me the boobs to distract the guards.
+
+<img src="https://simpsonspedia.net/images/5/5f/LABF13_536.jpg" />
